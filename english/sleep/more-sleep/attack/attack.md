@@ -1,6 +1,6 @@
 You lunge at the s’more eaters, waving your hands frantically as you get closer.
 
-They hiss and moo at you but eventually skip away but not before they take one last bite of your walls.
+They hiss and boo at you but eventually skip away but not before they take one last bite of your walls.
 
 You just stand there, dumbfounded.
 
